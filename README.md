@@ -1,4 +1,4 @@
-## Hi there 👋
+ Kendrick be like MUSTAAAARRDD Drake be like KETCHUUUUPPP Jcole be like RELISHHHHHH Metro boomin be like ONIONSSSSSS 😂 (Joke by:hesgonepostal)
 
 <!--
 **hesgonepostal/hesgonepostal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
